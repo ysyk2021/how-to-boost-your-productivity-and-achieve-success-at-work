@@ -1,5 +1,3 @@
-Using Technology and Environmental Changes
-===============================================================================
 
 Distractions can seriously impact productivity. In this chapter, we'll explore how to use technology and environmental changes to eliminate distractions and boost productivity.
 

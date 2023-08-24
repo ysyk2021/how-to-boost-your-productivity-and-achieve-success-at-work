@@ -1,4 +1,3 @@
-# Adjusting Productivity Programs Based on Feedback
 
 Adjusting productivity programs based on feedback is a crucial step in continually improving productivity and achieving success at work. In this chapter, we will explore the importance of feedback and some key considerations when making adjustments to productivity programs.
 

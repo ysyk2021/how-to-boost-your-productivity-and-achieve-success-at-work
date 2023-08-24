@@ -1,4 +1,3 @@
-# Chapter 7: Maximizing Energy and Motivation
 
 Maximizing energy and motivation are crucial steps in boosting productivity and achieving success at work. In this chapter, we will explore the importance of energy and motivation, as well as some strategies for maximizing both.
 

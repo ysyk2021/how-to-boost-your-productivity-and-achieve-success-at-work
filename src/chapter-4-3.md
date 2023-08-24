@@ -1,4 +1,3 @@
-# Using Time-Management Tools And Techniques
 
 Once you've prioritized your tasks, it's time to manage your time effectively. Here are some time-management tools and techniques to help you:
 

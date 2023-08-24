@@ -1,5 +1,3 @@
-Strategies for Eliminating Distractions
-============================================================================
 
 Distractions can seriously impact productivity. In this chapter, we'll explore strategies for eliminating distractions and boosting productivity.
 

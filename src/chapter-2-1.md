@@ -1,5 +1,3 @@
-Definition of Productivity
-=================================================================
 
 Productivity is a term used to describe the efficiency of production processes, which can be applied in various fields, including business, manufacturing, and agriculture. In simple terms, productivity refers to how much output can be produced with a given amount of input.
 

@@ -1,5 +1,3 @@
-Strategies for Improving Productivity
-============================================================================
 
 Productivity is crucial to achieving success at work. To improve productivity, individuals and organizations can implement various strategies. Here are some effective ways to boost productivity:
 

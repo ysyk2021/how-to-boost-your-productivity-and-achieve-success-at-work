@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Productivity is crucial for achieving success in the workplace. In this chapter, we'll explore the importance of productivity and success in the workplace, the benefits of increasing productivity, and an overview of the book.
 

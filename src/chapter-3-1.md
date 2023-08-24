@@ -1,4 +1,3 @@
-# The Importance of Setting SMART Goals for Productivity
 
 Setting SMART goals is an effective way to boost productivity and achieve success in the workplace. In this chapter, we will discuss the importance of setting SMART goals and how they can be used to enhance productivity levels.
 

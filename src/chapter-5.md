@@ -1,5 +1,3 @@
-Chapter 5: Eliminating Distractions
-===================================
 
 Distractions are one of the biggest productivity killers in the workplace. They can derail your focus, interrupt your workflow and hinder your ability to achieve your goals. In this chapter, we'll explore strategies for eliminating distractions and improving your productivity.
 

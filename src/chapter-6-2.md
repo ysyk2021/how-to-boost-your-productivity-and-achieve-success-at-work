@@ -1,5 +1,3 @@
-Strategies for Improving Focus and Concentration
-==============================================================================================
 
 Focus and concentration are essential for productivity. In this chapter, we'll explore strategies for improving focus and concentration to boost your productivity.
 

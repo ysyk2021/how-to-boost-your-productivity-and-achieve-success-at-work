@@ -1,5 +1,3 @@
-Chapter 3: Setting SMART Goals
-==============================
 
 Setting goals is essential for achieving success in the workplace. In this chapter, we'll explore the importance of setting SMART goals for productivity, strategies for setting and achieving SMART goals, and goal-tracking tools and techniques to help you stay on track.
 

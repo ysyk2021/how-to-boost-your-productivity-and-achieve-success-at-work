@@ -1,4 +1,3 @@
-# Chapter 2: Understanding Productivity
 
 Productivity is a crucial component of success in the workplace. In this chapter, we will discuss the definition of productivity, its impact on personal and professional development, and strategies for improving productivity.
 

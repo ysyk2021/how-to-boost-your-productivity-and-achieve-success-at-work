@@ -1,5 +1,3 @@
-Using Exercise and Self-Care Techniques
-====================================================================================
 
 Maximizing energy and motivation is key to achieving success at work. In this chapter, we'll explore how exercise and self-care techniques can help boost your energy and motivation.
 

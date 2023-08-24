@@ -1,5 +1,3 @@
-Importance of Productivity and Success in the Workplace
-================================================================================
 
 Productivity and success are two critical factors that can determine your career trajectory and overall job satisfaction. In today's fast-paced work environment, being productive and achieving success is more important than ever.
 

@@ -1,5 +1,3 @@
-Using Goal-Tracking Tools and Techniques
-========================================================================
 
 Setting SMART (specific, measurable, achievable, relevant, time-bound) goals is essential for achieving success at work. In this chapter, we'll explore how to use goal-tracking tools and techniques to help you reach your professional goals.
 

@@ -1,4 +1,3 @@
-# Chapter 9: Applying Productivity Skills to Career Advancement
 
 Productivity skills can be applied not only to increase efficiency and effectiveness in the workplace, but also to advance one's career. This chapter will explore the benefits of applying productivity skills to career advancement, strategies for using productivity skills to advance your career, and how to demonstrate productivity and leadership in the workplace.
 

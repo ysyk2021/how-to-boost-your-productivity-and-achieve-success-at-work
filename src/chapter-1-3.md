@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 Welcome to "How to Boost Your Productivity and Achieve Success at Work." This book is designed to help you maximize your productivity and achieve success in your career. Whether you're struggling with time management, feeling overwhelmed by your workload, or looking to take your productivity to the next level, this book has something for you.
 

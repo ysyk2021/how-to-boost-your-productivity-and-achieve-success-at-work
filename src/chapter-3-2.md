@@ -1,5 +1,3 @@
-Strategies for Setting and Achieving SMART Goals
-================================================================================
 
 Setting SMART (specific, measurable, achievable, relevant, time-bound) goals is essential for achieving success at work. In this chapter, we'll explore strategies for setting and achieving SMART goals.
 

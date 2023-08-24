@@ -1,5 +1,3 @@
-The Impact of Distractions on Productivity
-===============================================================================
 
 Distractions can significantly impact productivity in the workplace. In this chapter, we'll explore the impact of distractions on productivity and strategies for eliminating them.
 

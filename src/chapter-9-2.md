@@ -1,4 +1,3 @@
-# Strategies For Using Productivity Skills To Advance Your Career
 
 Productivity skills can be applied to advance one's career by increasing efficiency and effectiveness in completing tasks and projects. In this chapter, we will explore strategies for using productivity skills to advance your career.
 

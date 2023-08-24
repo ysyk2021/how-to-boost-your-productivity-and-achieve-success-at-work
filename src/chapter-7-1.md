@@ -1,4 +1,3 @@
-# The Importance Of Energy And Motivation In Productivity
 
 Here are some reasons why energy and motivation are crucial for productivity:
 

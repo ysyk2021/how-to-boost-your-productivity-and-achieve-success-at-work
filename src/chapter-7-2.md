@@ -1,5 +1,3 @@
-Strategies for Maximizing Energy and Motivation
-============================================================================================
 
 Maximizing energy and motivation is key to achieving success at work. In this chapter, we'll explore strategies for maximizing energy and motivation.
 

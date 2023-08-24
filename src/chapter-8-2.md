@@ -1,4 +1,3 @@
-# Analyzing Personal and Team Performance Data
 
 Analyzing personal and team performance data is critical for measuring productivity success. In this chapter, we will explore the importance of reviewing performance data and some key performance indicators to consider.
 

@@ -1,4 +1,3 @@
-# Demonstrating Productivity and Leadership in the Workplace
 
 In addition to applying productivity skills to improve efficiency, individuals can demonstrate productivity and leadership in the workplace to advance their careers. In this chapter, we will explore strategies for demonstrating productivity and leadership in the workplace.
 
