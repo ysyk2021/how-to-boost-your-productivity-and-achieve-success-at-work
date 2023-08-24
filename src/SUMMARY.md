@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of productivity and success in the workplace](chapter-1-1.md)
   - [Benefits of increasing productivity](chapter-1-2.md)
   - [Overview of the book](chapter-1-3.md)
