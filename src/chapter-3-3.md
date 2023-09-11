@@ -1,5 +1,4 @@
-Chapter 7: Using Goal-Tracking Tools and Techniques
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting goals is crucial for productivity and achieving success at work. To effectively track and manage your goals, various tools and techniques can be employed. In this chapter, we will explore the benefits of goal-setting, introduce popular goal-tracking tools, and provide effective techniques for maximizing goal attainment.
 

@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Energy and Motivation in Productivity
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Energy and motivation are essential elements that significantly impact our productivity and success at work. This chapter explores the vital role energy and motivation play in enhancing our performance, providing strategies for maintaining high energy levels and cultivating motivation to achieve our goals.
 

@@ -1,5 +1,4 @@
-Chapter 8: Methods for Measuring Productivity Success
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring productivity success is crucial to evaluate the effectiveness of your strategies and identify areas for improvement. In this chapter, we will explore different methods for measuring productivity success. By implementing these methods, you can track your progress, make data-driven decisions, and achieve greater success at work.
 

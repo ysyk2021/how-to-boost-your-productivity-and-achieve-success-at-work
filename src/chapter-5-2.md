@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Eliminating Distractions
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Distractions can hinder our productivity and prevent us from achieving success at work. This chapter explores effective strategies for identifying and eliminating distractions, allowing us to maintain focus and maximize our productivity.
 

@@ -1,5 +1,4 @@
-Chapter 7: Adjusting Productivity Programs Based on Feedback
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Continuous improvement is essential for maintaining high levels of productivity and achieving success at work. One of the most effective ways to enhance productivity is by adjusting your productivity programs based on feedback. In this chapter, we will explore the importance of feedback, how to gather feedback effectively, and strategies for adjusting your productivity programs for optimal results.
 

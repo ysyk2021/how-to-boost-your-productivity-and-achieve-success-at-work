@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Maximizing Energy and Motivation
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Energy and motivation are vital components of productivity and success at work. This chapter explores effective strategies for maximizing energy levels and cultivating motivation, enabling you to achieve peak performance and accomplish your goals.
 

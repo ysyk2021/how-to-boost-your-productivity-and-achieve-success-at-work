@@ -1,5 +1,4 @@
-Chapter 6: Demonstrating Productivity and Leadership in the Workplace
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's competitive work environment, it is essential to not only be productive but also demonstrate leadership qualities. This chapter explores how to showcase your productivity and leadership skills in the workplace and make a positive impact on your career.
 

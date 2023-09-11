@@ -1,5 +1,4 @@
-Chapter 8: Using Mindfulness and Meditation Techniques
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will explore the powerful practices of mindfulness and meditation and how they can significantly boost your productivity and help you achieve success at work. By incorporating these techniques into your daily routine, you can cultivate a focused and calm mindset, enhance your decision-making abilities, and improve your overall well-being.*
 

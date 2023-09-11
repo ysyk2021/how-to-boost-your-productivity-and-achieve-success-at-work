@@ -1,5 +1,4 @@
-Chapter 6: Using Technology and Environmental Changes
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's digital age, technology and environmental changes can significantly impact our productivity and success at work. This chapter explores how embracing technology and making environmental adjustments can enhance our efficiency, streamline workflows, and promote a conducive work environment.
 

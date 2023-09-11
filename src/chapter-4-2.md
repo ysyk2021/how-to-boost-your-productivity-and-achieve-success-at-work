@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Prioritizing Tasks and Managing Time
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will explore various strategies and techniques for effectively prioritizing tasks and managing your time. These strategies will help you make better decisions about where to allocate your time and resources, enabling you to maximize productivity and achieve success in your work.*
 

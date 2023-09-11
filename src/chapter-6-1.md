@@ -1,5 +1,4 @@
-Chapter 8: The Role of Focus and Concentration in Productivity
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will delve into the crucial role that focus and concentration play in boosting productivity and achieving success at work. We will explore practical strategies and techniques to help you improve your ability to concentrate and maintain focus, leading to enhanced efficiency and work performance.*
 

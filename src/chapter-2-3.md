@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Improving Productivity
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a variety of strategies that can help you boost your productivity and achieve success at work. By implementing these strategies, you can optimize your use of time and resources, enhance efficiency, and accomplish more in less time.
 

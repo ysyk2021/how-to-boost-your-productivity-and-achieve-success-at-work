@@ -1,5 +1,4 @@
-Chapter 12: The Impact of Distractions on Productivity
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Distractions can significantly hinder productivity and impede progress in the workplace. This chapter explores the various types of distractions and provides strategies for minimizing their impact and maximizing productivity.
 

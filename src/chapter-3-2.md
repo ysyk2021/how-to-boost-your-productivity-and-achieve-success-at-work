@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Setting and Achieving SMART Goals
-===========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to boost productivity and achieve success at work, setting goals is essential. However, not all goals are created equal. To increase the likelihood of success, it is important to set SMART goals. In this chapter, we will explore the strategies for setting and achieving SMART goals.
 
